@@ -1,2 +1,0 @@
-# CHU-QUANG-B-O-
-TOOL QUANG BẢO 
